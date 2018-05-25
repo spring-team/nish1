@@ -1,3 +1,5 @@
+// It’s only a thought, and a thought can be changed.
+
 // No need to say 'I can do it.' You ARE doing it!
 
 // You belong everywhere you are.
