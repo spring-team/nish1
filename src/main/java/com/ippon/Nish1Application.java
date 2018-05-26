@@ -1,3 +1,5 @@
+// Life is its own reason for being. It is beautiful to have a sense of beauty.
+
 // I believe in you. You can do the thing!
 
 // Make new mistakes as fast as you can.
