@@ -1,3 +1,5 @@
+// Make new mistakes as fast as you can.
+
 // You are the delta in what you do, not the things you did in the past
 
 // You belong everywhere you are.
