@@ -1,3 +1,5 @@
+// You belong everywhere you are.
+
 // Make new mistakes as fast as you can.
 
 // You're good enough, you're smart enough, and doggone it, people like you.
