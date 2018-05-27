@@ -1,3 +1,5 @@
+// You're good enough, you're smart enough, and doggone it, people like you.
+
 // Our bodies and minds are capable of far more than our psyche will let us achieve.
 
 // It’s only a thought, and a thought can be changed.
