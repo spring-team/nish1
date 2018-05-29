@@ -1,3 +1,5 @@
+// Life is its own reason for being. It is beautiful to have a sense of beauty.
+
 // Life is psychologically difficult for everybody.
 
 // No need to say 'I can do it.' You ARE doing it!
