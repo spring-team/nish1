@@ -1,3 +1,5 @@
+// No need to say 'I can do it.' You ARE doing it!
+
 // You belong everywhere you are.
 
 // Our bodies and minds are capable of far more than our psyche will let us achieve.
