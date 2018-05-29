@@ -1,3 +1,5 @@
+// You are the delta in what you do, not the things you did in the past
+
 // No need to say 'I can do it.' You ARE doing it!
 
 // You belong everywhere you are.
